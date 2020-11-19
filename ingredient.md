@@ -1,0 +1,1 @@
+Paneer, oil, bay leaf, cinnamon stick, cloves, onion, garlic, ginger, tomatoes, cashews, butter, red chili powder, Kashmiri red chili powder, cardamom powder, sugar, salt, tomato paste, cream, coriander, kasuri methi 
